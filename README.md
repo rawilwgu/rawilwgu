@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on genuinely anything that I can get my hands on. I want to learn and practice as much as possible.
 - 📫 How to reach me: Reach me through email.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I have published poetry in the past and written several novels.
+- ⚡ Fun fact: I have published poetry in the past and wrote several novels.
 
 <!---
 rawilwgu/rawilwgu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
